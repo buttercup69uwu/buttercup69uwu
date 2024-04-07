@@ -5,7 +5,6 @@
 - 📫 How to reach me ... 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im stupid
-  https://www.roblox.com/users/108871258/profile
 
 <!---
 buttercup69uwu/buttercup69uwu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
